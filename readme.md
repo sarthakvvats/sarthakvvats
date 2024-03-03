@@ -6,4 +6,4 @@
 
 💞️ I’m looking to collaborate on open source projects .
 
-📫 You can contact me on sarthak1990vats@gmail
+📫 You can contact me on sarthak1990vats@gmail.com
